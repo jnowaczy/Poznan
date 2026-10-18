@@ -4,7 +4,7 @@
 
 Download [Tour guide PDF](https://drive.google.com/file/d/1wxX1Chl0N51Raq9Lu-lhngL-Okb4_FOB/view?usp=drive_link)
 - [1] Old market square, must have (4h+, walk, eat, drink, night-life)
-- [2] Fara Poznsnska, church, must have (fine baroque, 30m+, free)
+- [2] Fara Poznanska, church, must have (fine baroque, 30m+, free)
 - [3] Plac Kolegiacki, (30min, short walk, free toilet)
 - [6] Museum of applied arts (skip museum, straight to observation desk if weather is bad, view on old town)
 
